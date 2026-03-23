@@ -1,16 +1,14 @@
 멜빈데코 체험단 참고사항<br>
 안녕하세요, 멜빈데코입니다.<br>
 이번 체험단은 생크림본드와 파츠를 이용한 탑로더꾸미기 체험입니다.<br>
-직접 커스텀한 파츠로 나만의 스타일을 커스텀해 하나뿐인 나만의 네일아트를 하는 체험단입니다.<br>
+직접 커스텀한 파츠로 나만의 스타일을 커스텀해 하나뿐인 나만의 탑로더꾸미기를 하는 체험단입니다.<br>
 아래 가이드를 참고하셔서 정성스러운 블로그 리뷰 작성 부탁드립니다.<br>
 <br>
-📦 체험단 제공 내역 - 멜빈데코 생크림본드 2p + 파츠 + 탑로더 2p (1만원 상당)<br>
-✔️ 멜빈데코 생크림본드 2p + 파츠 + 탑로더 2p (1만원 상당)<br>
-✔️ 본 체험단은 네일 파츠만 제공하는 이벤트 입니다.<br>
+📦 체험단 제공 내역 - 멜빈데코 생크림본드 2p + 파츠(5천원 상당) + 탑로더 2p (1만원 상당)<br>
 <br>
 ※ 자유 커스텀이 가능하도록, 장바구니에서 고르고 구글스프레드 시트에 기입해주세요! <br>
 구글 스프레드시트 링크 첨부드립니다-선정 후 2일이내 시트작성 완료해주세요. 택배 발송이 지연됩니다.<br>
-(https://docs.google.com/forms/d/19PKwTOend-hw1tnnEqGckwLFm3WdHH-FJFITcms6xe4/edit)<br>
+(https://docs.google.com/forms/d/19PKwTOend-hw1tnnEqGckwLFm3WdHH-FJFITcms6xe4/edit](https://docs.google.com/forms/d/19PKwTOend-hw1tnnEqGckwLFm3WdHH-FJFITcms6xe4/edit?usp=forms_home&ouid=111869577026205081798&ths=true)<br>
 <br>
 ✅ 이런 분이 지원해주시면 좋겠습니다!!<br>
 ✔️ 데코덴, 탑꾸(탑로더꾸미기) 경험이 있는 분 또는 자신있는분<br>
