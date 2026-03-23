@@ -8,7 +8,7 @@
 <br>
 ※ 자유 커스텀이 가능하도록, 장바구니에서 고르고 구글스프레드 시트에 기입해주세요! <br>
 구글 스프레드시트 링크 첨부드립니다-선정 후 2일이내 시트작성 완료해주세요. 택배 발송이 지연됩니다.<br>
-(https://docs.google.com/forms/d/19PKwTOend-hw1tnnEqGckwLFm3WdHH-FJFITcms6xe4/edit](https://docs.google.com/forms/d/19PKwTOend-hw1tnnEqGckwLFm3WdHH-FJFITcms6xe4/edit?usp=forms_home&ouid=111869577026205081798&ths=true)<br>
+(https://docs.google.com/forms/d/19PKwTOend-hw1tnnEqGckwLFm3WdHH-FJFITcms6xe4/edit?usp=forms_home&ouid=111869577026205081798&ths=true)<br>
 <br>
 ✅ 이런 분이 지원해주시면 좋겠습니다!!<br>
 ✔️ 데코덴, 탑꾸(탑로더꾸미기) 경험이 있는 분 또는 자신있는분<br>
